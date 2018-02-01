@@ -1,2 +1,2 @@
 # HellowAm
-hi to me
+hi to myself, is't it funny!
